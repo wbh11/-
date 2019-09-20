@@ -1,0 +1,2 @@
+# -
+Kodobani dekinai omoi
